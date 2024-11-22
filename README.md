@@ -1,2 +1,0 @@
-# spacefortuna
-Space Fortuna Casino
